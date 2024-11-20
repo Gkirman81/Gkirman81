@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on pulling this repo down
 - 📫 How to reach me kirmangareth17@gmail.com 
 - 😄 Pronouns: male Mr 
-- ⚡ Fun fact: ...you have taken control of NY life for 14 years denied any service any form of communication and and forced your ideas upon me denying my any basic human rights yet the fact is you won't stop me me from doing the right thing
+- ⚡ Fun fact: ...you have taken control of my life for 14 years denied any service any form of communication and and forced your ideas upon me denying my any basic human rights yet the fact is you won't stop me me from doing the right thing
 - I want this pulled down no one is to ever use anything within this I HAVE NUMEROUS FOR INFORMATION THATS BEEN IGNORED. UNDERSTAND THIS I DO NOT CONSENT TO ANYINE CHANGING ANYRHING WITHING THIS UNTIL I HAVE FULL DISCLOSURE THERE IS A COPYRIGHT ON PROCESS
 - I WILL NOT ALLOW YOU THIS TO BECOME A STANDARD THAT IS OK TO DO AS YOU PLEASE
 - A DENIAL OF ACCESS AND THE COONSTANT HAVKING IS UNACCEPTABLE
